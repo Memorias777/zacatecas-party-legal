@@ -1,1 +1,0 @@
-# zacatecas-party-legal
