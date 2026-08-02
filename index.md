@@ -54,7 +54,7 @@ Podemos actualizar esta Política de Privacidad ocasionalmente. Notificaremos ca
 
 Si tienes preguntas sobre esta Política de Privacidad o deseas ejercer tus derechos sobre tus datos, contáctanos en:
 
-**Correo:** [tu-correo-aquí@gmail.com]
+**Correo:** memixveloz@gmail.com
 
 ---
 
